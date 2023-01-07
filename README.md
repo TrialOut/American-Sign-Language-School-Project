@@ -4,4 +4,4 @@
 
 - 😒&nbsp; Get the work done ASAP
 - 💪&nbsp; But there's a twist, I'm hardworking
-- ╰(*°▽°*)╯
+- 😁&nbsp; ╰(*°▽°*)╯
